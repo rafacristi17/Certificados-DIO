@@ -1,2 +1,2 @@
 # Certificados-DIO
-Alguns certificados que conquiste na plataforma DIO
+Alguns certificados que conquistei na plataforma DIO
